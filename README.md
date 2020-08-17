@@ -1,1 +1,0 @@
-# fortune-belongs-to-the-strong-ones
